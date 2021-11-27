@@ -1,1 +1,0 @@
-## Wiem, że nie za dobrze, ale nie chce mi się robić lepiej
